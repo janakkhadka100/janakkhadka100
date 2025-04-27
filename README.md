@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @janakkhadka100
+- 👀 I’m interested in film direction, astrology, AI development, and creative writing.
+- 🌱 I’m currently learning web development, AI integration, and advanced Vedic astrology.
+- 💞️ I’m looking to collaborate on innovative tech projects, film productions, and astrology-based AI tools.
+- 📫 How to reach me: janakkhadkaofficial@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I directed my first movie at the age of 21 and have worked with over 100,000 astrology clients!
